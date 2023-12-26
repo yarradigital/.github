@@ -1,4 +1,4 @@
-![Yarra Digital](https://github.com/yarradigital/.github/blob/main/profile/yarra-digital-github-v2.png?raw=true)
+![Yarra Digital](https://github.com/yarradigital/.github/blob/main/profile/yarra-digital-github-v3.png?raw=true)
 
 ## Welcome to Yarra Digital
 
